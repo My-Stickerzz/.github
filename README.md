@@ -1,4 +1,3 @@
----
 # My Stickerzz
 
 Welcome to My Stickerzz, your go-to destination for personalized stickers and creative designs!
